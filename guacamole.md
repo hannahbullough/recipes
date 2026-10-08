@@ -8,3 +8,4 @@
 * cut avo and remove pit
 * scoop out avo flesh into a bowl 
 * mash avo with a fork
+* put in bin
