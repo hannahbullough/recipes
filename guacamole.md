@@ -7,5 +7,5 @@
 ## Instructions
 * cut avo and remove pit
 * scoop out avo flesh into a bowl 
-* mash avo with a fork
+* mash avo with your fourhead
 * put in bin
